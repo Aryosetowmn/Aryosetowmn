@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning everything 🤣 
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 2021 Goals: Learn more about the world of computers and programming 💻
-- ⚡ Fun fact: I love to play games 🎮
+- ⚡ Fun fact: I love to play games and watching football 🎮
 
 ### Connect with me:
 
