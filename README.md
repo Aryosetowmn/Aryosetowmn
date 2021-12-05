@@ -31,6 +31,6 @@
 
 ---
 
-[youtube]: https://youtube.com/Mosanodi
+[youtube]: https://www.youtube.com/channel/UCOYAbnadhOhGGtXtTRZwOIw
 [instagram]: https://www.instagram.com/aryosetowmn/
 [linkedin]: https://www.linkedin.com/in/aryoseto-wahyatma-manggala-nititiyoso-a4433a203/
